@@ -11,8 +11,8 @@
 
 ## 6.😊Some Attack lab
 
-SO,this winter vacation I want to learn something new. so I will upload some notes and something fun that I think.
+SO,this winter vacation I want to learn something new. and I will upload some notes and something fun that I think.
 
-Hope you can also  benifite from them
+Hope you can   benifite from them
 
 Tips:Don't forget to wear mask ❤️😷
